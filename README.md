@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Aashish-sys
 - 👀 I’m interested in photograhy & lil. bit in coding.
-- 🌱 I’m currently rom develpoment..
+- 🌱 I’m currently learn rom develpoment..
 - 💞️ I’m looking to collaborate on git ..
 - 📫 Reach me here .. @sagaraashish58@gmail.com
 
